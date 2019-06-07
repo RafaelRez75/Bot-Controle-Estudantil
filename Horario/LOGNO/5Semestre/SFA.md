@@ -1,0 +1,12 @@
+*O Quinto semestre de Logistica - Noite terá as seguintes aulas*
+
+18:45 às 19:35  -  *Projeto Ineterdisciplinar V* - Newton Eizo Yamada
+19:35 às 20:25  -  *Projeto Ineterdisciplinar V* - Newton Eizo Yamada
+> Laboratorio/Sala n° *YYY*
+> Atividades/listas/trabalho:
+
+20:35 às 21:25  -  *Gestão de Cad. de Suprimentos* - Manoel Roman Filho
+21:25 às 22:15  -  *Gestão de Cad. de Suprimentos* - Manoel Roman Filho
+22:15 às 23:05  -  *Gestão de Cad. de Suprimentos* - Manoel Roman Filho
+> Laboratorio/Sala n° *YYY*
+> Atividades/listas/trabalho:
